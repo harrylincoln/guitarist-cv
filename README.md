@@ -11,6 +11,7 @@ Recent bands and projects I have written for have been of the post/indie rock vi
 
 ## Live footage (chronological):
 
+* https://www.youtube.com/watch?v=2c6YYZki7FM
 * https://www.instagram.com/stories/highlights/18047550166163337/ (bass + guitar - [Two Box Kid](https://www.instagram.com/twoboxkid/) )
 * https://www.instagram.com/p/BqFaOtIByT7/
 * https://www.instagram.com/p/BoEcJ-Dgiac/
