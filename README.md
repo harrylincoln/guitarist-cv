@@ -11,20 +11,20 @@ Recent bands and projects I have written for have been of the post/indie rock vi
 
 ## Live footage (chronological):
 
-* https://www.youtube.com/watch?v=2c6YYZki7FM
-* https://www.instagram.com/stories/highlights/18047550166163337/ (bass + guitar - [Two Box Kid](https://www.instagram.com/twoboxkid/) )
-* https://www.instagram.com/p/BqFaOtIByT7/
-* https://www.instagram.com/p/BoEcJ-Dgiac/
-* https://www.facebook.com/janissaryband/videos/1024847604290148/
-* https://www.facebook.com/janissaryband/videos/999197496855159/
-* https://www.youtube.com/watch?v=gh8mN8-ASMM
-* https://www.facebook.com/janissaryband/videos/1041185015989740/
-* https://www.youtube.com/watch?v=8dqqYR8KCY0
-* https://www.youtube.com/watch?v=_NqRKNBWHXI
+* https://www.youtube.com/watch?v=2c6YYZki7FM (rhythm/lead guitar + backing vocs)
+* https://www.instagram.com/stories/highlights/18047550166163337/ (mainly bass + guitar + vocs - [Two Box Kid](https://www.instagram.com/twoboxkid/) )
+* https://www.instagram.com/p/BqFaOtIByT7/ (lead guitar)
+* https://www.instagram.com/p/BoEcJ-Dgiac/ (lead guitar)
+* https://www.facebook.com/janissaryband/videos/1024847604290148/ (lead guitar)
+* https://www.facebook.com/janissaryband/videos/999197496855159/ (lead guitar)
+* https://www.youtube.com/watch?v=gh8mN8-ASMM (lead guitar)
+* https://www.facebook.com/janissaryband/videos/1041185015989740/ (lead guitar)
+* https://www.youtube.com/watch?v=8dqqYR8KCY0 (lead guitar)
+* https://www.youtube.com/watch?v=_NqRKNBWHXI (lead guitar)
 
 ## Music videos:
-* https://www.youtube.com/watch?v=8qLC75zR5Qk
-* https://www.youtube.com/watch?v=ptg2UNgsYmo
+* https://www.youtube.com/watch?v=8qLC75zR5Qk (lead guitar)
+* https://www.youtube.com/watch?v=ptg2UNgsYmo (lead guitar)
 
 ## Jams & home practice:
 * https://youtu.be/HePrf-utgHY
