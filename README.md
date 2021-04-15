@@ -10,7 +10,7 @@ I have several qualifications in music and music theory - can sight-read chord c
 Recent bands and projects I have written for have been of the post/indie rock vibe:
 
 ## Live footage (chronological):
-* https://www.youtube.com/watch?v=IITEHUhl6Ao (FISCO: disco MJ cover during lockdown - guitars, synths)
+* https://www.youtube.com/watch?v=QkQDwJJ9PtY (DISCO / FUNK:: rhythm/lead guitar + backing vocs)
 * https://www.youtube.com/watch?v=2c6YYZki7FM (rhythm/lead guitar + backing vocs)
 * https://www.instagram.com/stories/highlights/18047550166163337/ (mainly bass + guitar + vocs - [Two Box Kid](https://www.instagram.com/twoboxkid/) )
 * https://www.instagram.com/p/BqFaOtIByT7/ (lead guitar)
